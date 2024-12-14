@@ -1,5 +1,4 @@
-Kirieshka-s-v41
-Kirieshka's v41 with open code is here 
+Kirieshka-s-v49
+Kirieshka's v49 with open code is here 
 Download client : soon... 
 Download zip : soon... 
-telegram: @brawlstars_arhivies
